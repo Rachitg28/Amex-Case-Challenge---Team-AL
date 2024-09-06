@@ -1,1 +1,1 @@
-DECISION SCIENCE TRACH | The American Express Campus Challenge 2024 
+DECISION SCIENCE TRACK | The American Express Campus Challenge 2024 
